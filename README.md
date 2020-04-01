@@ -1,0 +1,2 @@
+# bandidas
+jednoręki bandyta
